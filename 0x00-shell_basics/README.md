@@ -1,1 +1,1 @@
-6-firstdirectory
+Betty in my first directory
